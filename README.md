@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **akankshamate218@gmail.com**
 
-- ⚡ Fun fact **Nothing**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
